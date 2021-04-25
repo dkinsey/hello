@@ -1,9 +1,11 @@
 # DANNA N. KINSEY		
  				
 346 MCNALLIE LANE, EASTSOUND, WASHINGTON 98245
+
 dnk5@cornell.edu 	Tel/Text 360.298.1166  	
 
-	
+#CERTIFICATIONS
+
 Low Impact Development Certification (Univ of Washington/WSU), Stormwater abatement, bioretention facilities, site planning and review, rainwater collection, and permeable paving. Issued May 2009.
 
 Certified Forest & Farm Conservation Planner USDA-Natural Resource Conservation Service. Technical assistance provider for farms and forests. Certified since 2010.
