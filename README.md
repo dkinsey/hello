@@ -4,6 +4,8 @@
 
 dnk5@cornell.edu 	Tel/Text 360.298.1166  	
 
+
+
 #CERTIFICATIONS
 
 Low Impact Development Certification (Univ of Washington/WSU)
@@ -21,6 +23,8 @@ Certified Arborist International Society of Arborists (PN-7240).
 Hazardous Waste Operations & Emergency Response (HAZWOPER) 
 + Certification #CTH40-01312019001
 
+
+
 #EDUCATION
 
 Cornell University, Ithaca, New York		MLA - Masters in Landscape Architecture
@@ -35,6 +39,7 @@ University of California-Davis			BA - History/Regional Planning - Geography
 Prytanean & Phi Alpha Theta Honor Societies
 Mentorship for Undergraduate Research in Agriculture, Letters, & Science
 Dean's List College of Letters & Science
+
 
 
 #EXPERIENCE
