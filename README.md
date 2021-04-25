@@ -1,4 +1,5 @@
-![Uploading Screen Shot 2021-04-24 at 11.12.45 PM.png…]()
+<img width="1389" alt="Screen Shot 2021-04-24 at 11 12 45 PM" src="https://user-images.githubusercontent.com/9938561/115982857-eb638000-a552-11eb-9bc5-78946cf44c9c.png">
+
 
 
 # PROJECTS
