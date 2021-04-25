@@ -1,5 +1,5 @@
+![Uploading Screen Shot 2021-04-24 at 11.12.45 PM.png…]()
 
-![2020_hayimplement_by_DNKinsey](https://user-images.githubusercontent.com/9938561/115982760-56608700-a552-11eb-9efa-c3fa77ac73a5.jpg)
 
 # PROJECTS
 
