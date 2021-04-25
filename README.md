@@ -1,6 +1,4 @@
-# Hello There!
-
-DANNA N. KINSEY		
+# DANNA N. KINSEY		
 Tel/Text 360.298.1166   				
 346 MCNALLIE LANE, EASTSOUND, WASHINGTON 98245
 dnk5@cornell.edu			
