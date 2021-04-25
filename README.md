@@ -1,4 +1,5 @@
-![cliff-sunset](https://user-images.githubusercontent.com/9938561/115982695-e4883d80-a551-11eb-83b3-50602eee9224.gif)
+
+![2020_hayimplement_by_DNKinsey](https://user-images.githubusercontent.com/9938561/115982760-56608700-a552-11eb-9efa-c3fa77ac73a5.jpg)
 
 # PROJECTS
 
@@ -40,8 +41,8 @@ Software Apps - Eventbrite, Hylo, Mighty Networks,
 5/07 	Leadership San Juans, Skagit Valley College, WA
 
 # VOLUNTEER
-2014- Current   Eastsound Sewer & Water District, Eastsound, WA
-2011-Current 		4-H Leader, Orcas Island, WA 
-2007- Current 	Coach - Baseball & Basketball, Orcas, WA
++ 2014- Current   Eastsound Sewer & Water District, Eastsound, WA
++ 2011-Current 		4-H Leader, Orcas Island, WA 
++ 2007- Current 	Coach - Baseball & Basketball, Orcas, WA
 
-![5903e3a467ca9ac4a6fe5a26963230d0](https://user-images.githubusercontent.com/9938561/115982542-d4bc2980-a550-11eb-8005-ea682741cc32.gif)
+
