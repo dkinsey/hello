@@ -6,7 +6,7 @@ dnk5@cornell.edu 	Tel/Text 360.298.1166
 
 
 
-#CERTIFICATIONS
+# CERTIFICATIONS
 
 Low Impact Development Certification (Univ of Washington/WSU)
 + Stormwater abatement, bioretention facilities, site planning and review, rainwater collection, and permeable paving. Issued May 2009.
@@ -25,7 +25,7 @@ Hazardous Waste Operations & Emergency Response (HAZWOPER)
 
 
 
-#EDUCATION
+# EDUCATION
 
 Cornell University, Ithaca, New York		MLA - Masters in Landscape Architecture
 
@@ -42,7 +42,7 @@ Dean's List College of Letters & Science
 
 
 
-#EXPERIENCE
+# EXPERIENCE
 
 Land Use Planner, Landscape Architect and Consulting Arborist
 San Juan County, WA
