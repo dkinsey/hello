@@ -17,7 +17,7 @@ Rural Design Plan for Heritage Dairy Farm, Waverly, NY
 Canal Street Pocket Park, New York City, NY
 
 
-# Computer Skills
+# COMPUTER SKILLS
 
 Expertise in Windows platform PCs and Apple computers including hardware, peripherals and software. 
 Programs used and skilled with include:
