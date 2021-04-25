@@ -21,13 +21,13 @@ Certification #CTH40-01312019001
 
 Cornell University, Ithaca, New York		MLA - Masters in Landscape Architecture
 
-HONORS
++HONORS
 Landscape installation “ROOF” at the National Gallery of Art, Washington DC, with noted landscape artist, Andy Goldsworthy, November 2004.
 
 
 University of California-Davis			BA - History/Regional Planning - Geography
 
-HONORS
++HONORS
 Prytanean & Phi Alpha Theta Honor Societies
 Mentorship for Undergraduate Research in Agriculture, Letters, & Science
 Dean's List College of Letters & Science
