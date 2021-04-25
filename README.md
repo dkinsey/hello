@@ -6,16 +6,20 @@ dnk5@cornell.edu 	Tel/Text 360.298.1166
 
 #CERTIFICATIONS
 
-Low Impact Development Certification (Univ of Washington/WSU), Stormwater abatement, bioretention facilities, site planning and review, rainwater collection, and permeable paving. Issued May 2009.
+Low Impact Development Certification (Univ of Washington/WSU)
++ Stormwater abatement, bioretention facilities, site planning and review, rainwater collection, and permeable paving. Issued May 2009.
 
-Certified Forest & Farm Conservation Planner USDA-Natural Resource Conservation Service. Technical assistance provider for farms and forests. Certified since 2010.
+Certified Forest & Farm Conservation Planner USDA-Natural Resource Conservation Service. 
++ Technical assistance provider for farms and forests. Certified since 2010.
 
-Washington State Certified Instructor for Real Estate Services (ID # I3167). Principles, Environmental Issues, Ethics, Construction and Land Development. Certified since 2007.
+Washington State Certified Instructor for Real Estate Services (ID # I3167). 
++ Principles, Environmental Issues, Ethics, Construction and Land Development. Certified since 2007.
 
-Certified Arborist International Society of Arborists (PN-7240). Plant health, pruning, landscape and forest level management techniques. Certified since 2011.
+Certified Arborist International Society of Arborists (PN-7240). 
++ Plant health, pruning, landscape and forest level management techniques. Certified since 2011.
 
 Hazardous Waste Operations & Emergency Response (HAZWOPER) 
-Certification #CTH40-01312019001
++ Certification #CTH40-01312019001
 
 #EDUCATION
 
